@@ -16,6 +16,6 @@
 <strong><h3>OVO  :<pre><code> 081927625651</pre></code></h3>
 
 
-<h2> THANKS DONATE TO :</h2><br>
+<h2> THANKS FOR YOUR DONATE :</h2><br>
 1. VPNORI<br>
 2.
