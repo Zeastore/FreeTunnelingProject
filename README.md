@@ -14,3 +14,8 @@
 <br>
 <strong><h3>DANA : <pre><code>081927625651</pre></code></h3>
 <strong><h3>OVO  :<pre><code> 081927625651</pre></code></h3>
+
+
+<h2> THANKS DONATE TO :
+1. VPNORI
+2.
